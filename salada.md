@@ -1,1 +1,0 @@
-saladinha de alface
